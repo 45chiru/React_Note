@@ -1,4 +1,4 @@
-## Pro Mode On
+
 
 #            Study Mode On
 
